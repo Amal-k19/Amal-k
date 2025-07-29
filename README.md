@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **amalk.mec@gmail.com**
 
-- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/10r0v78bWF19-vL2y7d_h1lFtbt7jeAJU/view?usp=drive_link(https://drive.google.com/file/d/1i_fS-XUN96L4Dpwv5bwz-n8Ot8yyMgra/view?usp=sharing))
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1i_fS-XUN96L4Dpwv5bwz-n8Ot8yyMgra/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
